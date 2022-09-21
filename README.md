@@ -1,1 +1,1 @@
-# Developing an Effective Mission Statement
+# Developing an Effective Mission Statement by Refining it
